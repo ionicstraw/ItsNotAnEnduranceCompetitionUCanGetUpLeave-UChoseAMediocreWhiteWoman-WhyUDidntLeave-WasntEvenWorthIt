@@ -15,3 +15,5 @@ i live with my parents, i make them happy, bc i have make my parents happy in is
 if i was assigned to be in a group project with the person ure with (fighting tooth and nail for all these yrs, showed me attitude on the phone for, asshole), id fking do the ENTIRE project myself, and tell that person "dont worry about it" and never keep in touch with that person after the project is over. i dont think that person would be in the same classes as me tho.
 
 https://www.youtube.com/watch?v=ALzBCgozQwU
+
+the downfall for a man, any man, is a mediocre woman. and the downfall for a woman, any woman, is a mediocre man.
