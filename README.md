@@ -1,0 +1,1 @@
+# ItsNotAnEnduranceCompetitionUCanGetUpLeave-UChoseAMediocreWhiteWoman-WhyUDidntLeave-WasntEvenWorthIt
